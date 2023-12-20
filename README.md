@@ -1,1 +1,1 @@
-https://mrmijanjoy.github.io/WedCup/
+https://mrmijanjoy.github.io/wedcup/
